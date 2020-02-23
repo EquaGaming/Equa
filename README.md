@@ -1,1 +1,1 @@
-# equagamingtv
+Equa
